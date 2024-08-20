@@ -2,4 +2,4 @@
 - 👀 I’m interested in Jesus!
 - 🌱 I’m currently learning: Bible!
 - 📫 How to reach me: in the church!
-- ⚡ Fun fact: Jesus Salva!
+- ⚡ Fun fact: Jesus Saves!
